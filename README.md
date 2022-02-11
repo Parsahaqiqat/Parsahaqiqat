@@ -1,2 +1,3 @@
 - 👋 Hi, I’m Parsa Haghighat
+- 📫 E-mail: parsahaqiqat@gmail.com
 - 📫 Telegram: @parsahaqiqat
